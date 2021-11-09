@@ -17,3 +17,6 @@ Transfira para um recipiente, junte a Aveia NESTLÉ e o fermento em pó e mistur
 Coloque em forminhas de papel dentro de formas para empada e distribua a massa entre elas.
 
 Leve ao forno médio-alto (200°C), preaquecido, por cerca de 25 minutos.
+
+linha de codigo 
+funcoes
