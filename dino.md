@@ -2,7 +2,7 @@
 Ingredientes
 
     2 ovos
-    2 polpas de açaí sem açúcar (200 g)
+    2 polpas de banana sem açúcar (200 g)
     meia xícara (chá) de óleo
     2 bananas-nanica maduras
     2 xícaras (chá) de Aveia Flocos Orgânica e Sem Glúten NESTLÉ®
